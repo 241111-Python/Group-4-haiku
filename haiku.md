@@ -5,7 +5,7 @@ Emanuel
 [
 William
 ]
-[
-Jeffrey
-]
+Rainy afternoon
+A rich, heavy chocolate skips
+at the perfect leaf
 Goodbye!

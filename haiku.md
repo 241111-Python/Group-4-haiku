@@ -1,7 +1,7 @@
 Hello World!
-[
-Emanuel
-]
+I have no mone
+I really need money now
+I want some money
 [
 William
 ]
